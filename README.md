@@ -1,1 +1,1 @@
-# dekopinda-tanjung-jabung-barat
+# dekopinda-karanganyar
